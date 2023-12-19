@@ -1,0 +1,5 @@
+- 👋 Hi, I’m Emily <3
+- 👀 I’m interested in: uuuhhh....
+- 🌱 I’m currently learning: Full-stack Development
+- 💞️ I’m looking to collaborate on: Nothing......?
+- 📫 How to reach me: Nowhere fuck off... jk
